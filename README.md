@@ -1,0 +1,2 @@
+# Atividade-pr-tica---Sintaxe-b-sica-Python
+EU VOU ENDOIDAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAR
